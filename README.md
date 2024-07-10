@@ -2,7 +2,7 @@
  
 　ᯓ★　benrey #1 kin   𓏴　sign [guestbook](https://ben.atabook.org/)　
 
-　bpdtism　┈　he/him esfp if that matters 　✧ ˚
+　bpdtism　┈　he　she　　∿　　( no they )
 
 　	(¯▿¯)　poly gayboy + taken mweheheh
 

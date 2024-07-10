@@ -1,6 +1,6 @@
 ![](https://i.postimg.cc/br3LXwWp/download-1.png)
  
-　ᯓ★　benrey #1 kin   𓏴　sign [guestbook](https://ben.atabook.org/)　
+　ᯓ★　benrey #1 kin   𓏴　sign [guestbook](https://benrey.atabook.org/)　
 
 　bpdtism　┈　he　she　　∿　　( no they )
 
